@@ -20,4 +20,4 @@ ___
 
 #### Contact me at ☕️
 <a href="www.linkedin.com/in/
-rodrigo-alejandro-muñoz-gonzalez-b01826266"> Mi linkedin</a>
+rodrigo-alejandro-muñoz-gonzalez-b01826266"> My linkedin</a>
